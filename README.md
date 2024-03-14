@@ -30,5 +30,5 @@
 📧 Почта: <a href="mailto:kozloviva@gmail.com"><font size="+5">kozloviva@gmail.com</font></a><br>
 💬 Телеграмм: <a href="https://t.me/Kartez78"><font size="+5">@Kartez78</font></a><br>
 
-P.S. Если плохое настроение, то посмотрите это [видео](https://youtu.be/3MPT7_K5OKc?autoplay=1&si=VX2Fp8MPEKP7P1MG).
+P.S. Если есть время, то посмотрите это [видео](https://youtu.be/3MPT7_K5OKc?autoplay=1&si=VX2Fp8MPEKP7P1MG).
 </p>
